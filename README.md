@@ -1,4 +1,4 @@
-<img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=killjoys&color=4E7194&base=1856" alt="Profile Views"/>
+<img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=killjoys&color=grey&base=1856&style=for-the-badge" alt="Profile Views"/>
 <table style="max-width: 600">
   <tr>
     <td style="padding-right: 15">
