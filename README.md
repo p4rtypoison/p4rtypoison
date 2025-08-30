@@ -5,6 +5,14 @@
       <img src="https://file.garden/aFQP9esOHyVvl9zD/puffle.png" width="220">
     </td>
     <td style="vertical-align: middle; padding-left: 10">
-      drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl9zD/gato.gif" style="width: 16 vertical-align: middle">
+      drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl9zD/gato.gif" style="width: 16 vertical-align: middle"
   </tr>
 </table>
+
+  <a href="https://vampirictheatrics.atabook.org/">
+    <span style="font-size: 20">message me? :3 (ata) </span> 
+  </a>
+  
+  genderfluid, pansexual, asexual!
+  
+  github lowk wip but we ball
