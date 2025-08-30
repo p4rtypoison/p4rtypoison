@@ -7,7 +7,7 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 
 [message me? :3 (ata)](https://vampirictheatrics.atabook.org/)
 
-alts ； @puffleful , @l-Me-Myself
+alts ； [@puffleful](https://github.com/puffleful) , [@l-Me-Myself](https://github.com/l-Me-Myself)
 
 <br>
 
