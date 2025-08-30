@@ -11,7 +11,7 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 
 <br>
 
-----
+#
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=Pokédex&color=96BEAF&base=1851&style=for-the-badge" alt="Profile Views"/>
 </p>
