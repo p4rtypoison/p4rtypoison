@@ -13,6 +13,7 @@
     <span style="font-size: 20">message me? :3 (ata) </span> 
   </a>
   
+<hr>
   genderfluid, pansexual, asexual,
   any prns but big preference for he/him !
   
