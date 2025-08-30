@@ -1,4 +1,7 @@
+<p align="center">
 <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=killjoys&color=grey&base=1856&style=for-the-badge" alt="Profile Views"/>
+</p>
+
 <table style="max-width: 600">
   <tr>
     <td style="padding-right: 15">
