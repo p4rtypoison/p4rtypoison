@@ -2,6 +2,7 @@
 <img src="https://file.garden/aFQP9esOHyVvl9zD/or.jpg" width=200>
 </div>
 
+
 ----
 
 <img align="left" width="220" src="https://file.garden/aFQP9esOHyVvl9zD/puffle.png"> 
@@ -24,4 +25,18 @@ alts ； [@puffleful](https://github.com/puffleful) , [@l-Me-Myself](https://git
 <img src="https://file.garden/aFQP9esOHyVvl9zD/pokeball.png" width="150">
 </div>
 
-big fat wip :P
+brief introduction since most of my thingies are in big wip xP
+<br>
+- I go by klaus, wilson, mayo (which is mainly limited to friends)- but you can call me nicknames!
+- often offtab due to being busy, so feel free to w2i or just c * h
+sometimes non verbal or talkative!, Im very shy at first approach but ill warm up eventually ^___^
+  
+- I may make mean jokes, sarcastic comments so please let me know if it bothers you! no worries im actually nice :)) (trust.)
+  
+- any pronouns is a-okay ! however I mainly prefer he him
+  
+- pansexual, asexual, and genderfluid
+  
+- main interests as of now 
+  
+House Md , Pokemon both the games and anime(VERY BIG INTEREST!!), MCR, Friday the 13th, Scream I and VI , Limbus Company
