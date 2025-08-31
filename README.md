@@ -16,3 +16,8 @@ alts ； [@puffleful](https://github.com/puffleful) , [@l-Me-Myself](https://git
 <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=Pokédex&color=96BEAF&base=1851&style=for-the-badge" alt="Profile Views"/>
 </p>
 
+<div align="center">
+<img src="https://file.garden/aFQP9esOHyVvl9zD/pokeball.png" width="150">
+</div>
+
+big fat wip :P
