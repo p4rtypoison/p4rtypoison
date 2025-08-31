@@ -1,3 +1,7 @@
+<div align="center">
+<img src="https://file.garden/aFQP9esOHyVvl9zD/or.jpg" width=200>
+</div>
+
 ----
 
 <img align="left" width="220" src="https://file.garden/aFQP9esOHyVvl9zD/puffle.png"> 
