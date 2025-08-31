@@ -36,7 +36,7 @@ sometimes non verbal or talkative!, Im very shy at first approach but ill warm u
   
 - I may make mean jokes, sarcastic comments so please let me know if it bothers you! no worries im actually nice :)) (trust.)
   
-- any pronouns is a-okay ! however I mainly prefer he him
+- any pronouns is a-okay ! however I mainly prefer he him and masculine terms
   
 - pansexual, asexual, and genderfluid
   
