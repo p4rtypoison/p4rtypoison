@@ -12,6 +12,9 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 
 [message me? :3 (ata)](https://vampirictheatrics.atabook.org/)
 
+[click once a day to help out the people especially the children of palestine in need!](https://arab.org/click-to-help/palestine/)
+
+
 alts ； [@puffleful](https://github.com/puffleful) , [@l-Me-Myself](https://github.com/l-Me-Myself)
 <br>
 <br>
