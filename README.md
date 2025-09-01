@@ -10,7 +10,7 @@
 <br><br>
 drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl9zD/gato.gif" style="width: 16 vertical-align: middle">
 
-[message me? :3 (ata)](https://vampirictheatrics.atabook.org/)
+ata temporarily down
 
 [click once a day to help out the people especially the children of palestine in need!](https://arab.org/click-to-help/palestine/)
 
