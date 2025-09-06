@@ -17,9 +17,9 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 <br>
 <br>
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4p8jl8l0nv5mdylednuv4rbpo&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=242e7b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4p8jl8l0nv5mdylednuv4rbpo&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=232d76&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-  <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=RARECANDY&color=14164B&base=1851&style=for-the-badge" alt="Profile Views" align="middle"/>
+  <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=RARECANDY&color=14164B&base=1851&style=for-the-badge" alt="Profile Views" align="right"/>
 
 #
 <p align="center">
