@@ -13,12 +13,18 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 [click once a day to help out the people especially the children of palestine in need!](https://arab.org/click-to-help/palestine/)
 
 
-alts ； [@puffleful](https://github.com/puffleful) , [@l-Me-Myself](https://github.com/l-Me-Myself)
+
 <br>
 <br>
 
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=4p8jl8l0nv5mdylednuv4rbpo&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=A20102&bar_color_cover=false" align=left />
+  </p>
+
+  <img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=RARECANDY&color=14164B&base=1851&style=for-the-badge" alt="Profile Views" align="middle"/>
+
 #
 <p align="center">
-<img src="https://komarev.com/ghpvc/?username=p4rtypoison&label=Pokédex&color=1F0850&base=1851&style=for-the-badge" alt="Profile Views"/>
+
 </p>
   
