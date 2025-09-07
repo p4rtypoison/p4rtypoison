@@ -12,7 +12,7 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 
 [click once a day to help out the people especially the children of palestine in need!](https://arab.org/click-to-help/palestine/)
 
-
+[wanna know if our destiny aligns? (List)](https://listography.com/fiftyreasonstodie?m=0580652416)
 
 <br>
 <br>
