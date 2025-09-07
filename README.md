@@ -14,8 +14,7 @@ drops off puffles on your ata beware <img src="https://file.garden/aFQP9esOHyVvl
 
 [wanna know if our destiny aligns? (List)](https://listography.com/fiftyreasonstodie?m=0580652416)
 
-<br>
-<br>
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=4p8jl8l0nv5mdylednuv4rbpo&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=232d76&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
