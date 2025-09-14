@@ -9,9 +9,9 @@
 $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
 
 <p align="left">
-$${\color{#5748C1} Click \ on \ the \ images}$$
+$${\color{#5748C1} Click \ on \ the \ images:}$$
 <br>
-<vr> 
+<br> 
 <a href="https://huffpuff.atabook.org/" target="_blank">
  <img src="https://github.com/user-attachments/assets/a7109dee-6daa-4168-baf4-d07c6f857ff0" width="200">
 </a>
