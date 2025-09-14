@@ -2,6 +2,9 @@
 <img src="https://komarev.com/ghpvc/?username=p4rtypoison&style=plastic&base=1851&label=rarecandies&color=160643"/>
 </p>
 
+<p align="center">
+<kbd><br>click on the gifs, 1st= ata, 2nd= listo<br>&nbsp;  </kbd> 
+</p>
 
 <br>
 
