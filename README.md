@@ -5,4 +5,4 @@
 #
 
 
-$${\color{#332791} Moonlit \ Ballad \ of \ the \ Night}$$
+$${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
