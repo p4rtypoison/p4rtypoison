@@ -11,9 +11,8 @@
 
 $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
 
-#
 
-<img src="https://file.garden/aFQP9esOHyVvl9zD/holy%20peak.png">
+<img src="https://file.garden/aFQP9esOHyVvl9zD/piano%20tils%20bruh.png">
 
 <a href="https://huffpuff.atabook.org/" target="_blank">
  <img src="https://github.com/user-attachments/assets/d535cb89-1004-49d0-b414-0fe4355c6ce7" width="200">
