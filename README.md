@@ -10,6 +10,4 @@ $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
 
 
 
-
-![wowaoowaow](https://github.com/user-attachments/assets/db262106-dc6a-41c1-a786-5b7a0dbcb265)
-
+<img src="https://github.com/user-attachments/assets/a7109dee-6daa-4168-baf4-d07c6f857ff0" alt="https://huffpuff.atabook.org/" width="300">
