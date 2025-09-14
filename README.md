@@ -8,12 +8,32 @@
 
 $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
 
-<p align="left">
-$${\color{#5748C1} Click \ on \ the \ images:}$$
+#
+
 <br>
 <br> 
 <a href="https://huffpuff.atabook.org/" target="_blank">
- <img src="https://github.com/user-attachments/assets/a7109dee-6daa-4168-baf4-d07c6f857ff0" width="200">
+ <img src="https://github.com/user-attachments/assets/d535cb89-1004-49d0-b414-0fe4355c6ce7" width="200">
 </a>
  
-<kbd><br>Shadowy Lights, Stranger Wights<br>&nbsp;  </kbd> 
+<br>
+
+
+
+${\color{#3121B0} - \ This \ is \ no \ place \ to \ linger \ on \ a \ foggy \ night.}$
+
+<p align="right">
+ 
+$${\color{#3854DD} - \ Allow \ me \ to \ escort \ you \ out.}$$
+
+</p>
+
+
+
+<p align="center">
+<img src="https://github.com/user-attachments/assets/219f5139-8f1b-4014-9b00-50bd0f3263d0" width="200">
+</p>
+
+
+
+ 
