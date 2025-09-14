@@ -7,3 +7,6 @@
 
 
 $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
+
+<img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/f15e04d3-f7c8-4b04-bd54-4fedb2c8a7ba" />
+
