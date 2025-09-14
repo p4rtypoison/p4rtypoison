@@ -33,9 +33,9 @@ $${\color{#3854DD} - \ Allow \ me \ to \ escort \ you \ out.}$$
 
 
 <p align="center">
- <a href="https://huffpuff.atabook.org/" target="_blank">
+ <a href="https://listography.com/fiftyreasonstodie" target="_blank">
 <img src="https://github.com/user-attachments/assets/219f5139-8f1b-4014-9b00-50bd0f3263d0" width="200">
-  <a href="https://listography.com/fiftyreasonstodie" target="_blank">
+ </a>
 </p>
 
 <br><br>
