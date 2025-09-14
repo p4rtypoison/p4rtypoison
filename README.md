@@ -22,6 +22,8 @@ $${\color{#3F31A8} Moonlit \ Ballad \ of \ the \ Night}$$
 
 ${\color{#3121B0} - \ This \ is \ no \ place \ to \ linger \ on \ a \ foggy \ night.}$
 
+
+<img src="https://file.garden/aFQP9esOHyVvl9zD/zooo%20wee%20mama.png" width="500" align="right">
 <p align="right">
  
 $${\color{#3854DD} - \ Allow \ me \ to \ escort \ you \ out.}$$
