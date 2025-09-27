@@ -8,7 +8,6 @@
 <p align="center">
 <kbd><br>click on the gifs, 1st= ata, 2nd= listo<br>&nbsp;  </kbd> 
  
-<kbd><br> [Strawpage](https://dontlooklook.straw.page/)<br>&nbsp; </kbd>
  <kbd><br>better viewed on pc<br>&nbsp;  </kbd> 
 </p>
 
