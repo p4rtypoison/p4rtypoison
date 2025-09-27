@@ -1,4 +1,4 @@
- [please help out the palestinians this will NOT take much of your time](https://arab.org/click-to-help/palestine/) ,, better viewed in pc.
+ [please help out the palestinians this will NOT take much of your time](https://arab.org/click-to-help/palestine/) 
 #
 
 <p align="center">
@@ -7,6 +7,7 @@
 
 <p align="center">
 <kbd><br>click on the gifs, 1st= ata, 2nd= listo<br>&nbsp;  </kbd> 
+ <kbd><br>better viewed on pc<br>&nbsp;  </kbd> 
 </p>
 
 <br>
