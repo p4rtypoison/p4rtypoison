@@ -1,4 +1,4 @@
- [please help out the palestinians this will NOT take much of your time](https://arab.org/click-to-help/palestine/)
+ [please help out the palestinians this will NOT take much of your time](https://arab.org/click-to-help/palestine/) ,, better viewed in pc.
 #
 
 <p align="center">
