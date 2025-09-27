@@ -12,7 +12,9 @@
 <br>
 
 <p align="center">
- <kbd><br>[straw](https://dontlooklook.straw.page/)<br>&nbsp;  </kbd> 
+ 
+<kbd><br> [Strawpage](https://dontlooklook.straw.page/)<br>&nbsp; </kbd>
+</p>
 
 
 <br>
