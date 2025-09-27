@@ -11,10 +11,9 @@
 </p>
 <br>
 
-<p align="center">
- 
+
 <kbd><br> [Strawpage](https://dontlooklook.straw.page/)<br>&nbsp; </kbd>
-</p>
+
 
 
 <br>
